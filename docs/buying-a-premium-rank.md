@@ -1,3 +1,4 @@
+![1000068837](https://github.com/user-attachments/assets/bafc77d2-2107-409d-a5b9-bf9395324dc0)
 # Buying a Premium Rank
 
 To buy a rank, open the NetherGames Store.
